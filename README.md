@@ -4,6 +4,6 @@
 - 👯 I’m looking to collaborate on Cloud 
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about .I am Simran..
-- 📫 How to reach me at.simran@o7tec.com
+- 📫 How to reach me simran@o7tec.com
 - 
 - 
